@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **tanyapal0301@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/16MMKA5F24YLcB2mw8aUyNoptPegD2IIR/view?usp=drive_link](https://drive.google.com/file/d/16MMKA5F24YLcB2mw8aUyNoptPegD2IIR/view?usp=drive_link)
+- 📄 Know about my experiences [https://drive.google.com/file/d/16MMKA5F24YLcB2mw8aUyNoptPegD2IIR/view?usp=drive_link](https://drive.google.com/file/d/16dibIz7SRHGmef0JxVZvCSVVFRy2mWsj/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
