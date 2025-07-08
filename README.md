@@ -9,7 +9,7 @@
 - 📫 How to reach me **tanyapal0301@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/16MMKA5F24YLcB2mw8aUyNoptPegD2IIR/view?usp=drive_link](https://drive.google.com/file/d/16dibIz7SRHGmef0JxVZvCSVVFRy2mWsj/view?usp=sharing)
-
+- **portfolio** https://tanya-pal.github.io/Portfolio/
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://linkedin.com/in/tanya pal" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/linked-in-alt.svg" alt="tanya pal" height="30" width="40" /></a>
